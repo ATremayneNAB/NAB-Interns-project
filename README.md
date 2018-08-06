@@ -1,1 +1,0 @@
-# NAB-Interns-project
